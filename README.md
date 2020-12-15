@@ -1,4 +1,4 @@
-# giat-thi
+# Giải mã điềm báo giật thịt liên tục 
 Trong cuộc sống, thi thoảng bạn gặp phải hiện tượng một vùng da thịt nào đó bị giật liên tục không thể kiểm soát được. Theo giải thích của khoa học thì hiện tượng thịt giật, cơ giật là một hiện tượng tự nhiên và là phản xạ của cơ thể phản ứng lại các tác động kích thích từ môi trường. Tuy nhiên, theo phong thủy tâm linh thì hiện tượng này lại mang ý nghĩa hoàn toàn khác. Và nhiều người cho rằng đó là dấu hiệu của một điềm báo nào đó.
 <p style="text-align: center;"><img class="aligncenter  wp-image-21004" src="https://ngonaz.com/wp-content/uploads/2020/12/thit-giat.jpg" alt="Khám phá hiện tượng thịt giật theo cả tự nhiên lẫn phong thủy tâm linh" width="932" height="621" /></p>
 Vậy, ngay bây giờ, chúng ta hãy cùng khám phá hiện tượng giật thịt theo cả hai khía cạnh phong thủy và khoa học nhé!
